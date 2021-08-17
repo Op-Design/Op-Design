@@ -15,14 +15,12 @@ Here are some ideas to get you started:
 - ⚡ Fun fact: ...
 -->
 
-😄 Pronouns:
-I simply go by "Ope." Pronounced (OH-p-ee)
+😄 My name is Ope (OH-p-ee)
 
-📫 How to reach me:
+👯 I’m always looking to work on cutting edge projects and technolgy. The start-up space is always great!
+
+📫 How to reach me: <br>
 LinkedIn: https://www.linkedin.com/in/oolaleye/
 
-👯 I’m looking to collaborate on:
-Cutting edge projects and technolgy. The start-up space is always great!
-
-⚡ Fun fact:
-I love plants :sunflower: and spending time outdoors.
+⚡ Fun facts: <br>
+I enjoy gardening, plants, spending time outdoors :sunflower:, art, and theatre.
